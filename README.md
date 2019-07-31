@@ -1,1 +1,1 @@
-# worldsgreatestpainting
+# The world's greatest painting
